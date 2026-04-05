@@ -1,1 +1,1 @@
-# howlingspacesociety
+# howling-space-society
